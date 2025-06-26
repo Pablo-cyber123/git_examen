@@ -8,3 +8,7 @@
 ### INSTRUCCIONES
 
 - Sientate y respira musica de fondo e inhala e exhala
+
+#### CONSEJOS Y PRECAUCIONES
+
+- Ten cuidado de no lastimarte por estirarte mas de lo que te permite tu cuerpo
