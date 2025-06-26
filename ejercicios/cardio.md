@@ -6,3 +6,6 @@
 
 ## INSTRUCCIONES
 - Por favor colocate en la banda de la caminadora y dale en el boton start y empieza a caminar
+
+### CONSEJOS Y PRECAUCIONES
+- Si te sientes cansado o fatigado o corto de respiracion bajale a la velocidad
