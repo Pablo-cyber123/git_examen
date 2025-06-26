@@ -6,3 +6,7 @@
 ### INSTRUCCIONES
 
 - Sientate en la Banca y pon las pesas a tus laterales sube las pesas y empieza!
+
+#### CONSEJOS Y PRECAUCIONES
+
+- No alces mas peso de lo debido podria lessionarte la espalda 
