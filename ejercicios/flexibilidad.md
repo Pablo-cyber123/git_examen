@@ -5,3 +5,7 @@
 ### INSTRUCCIONES
 
 - agarra el lazo y empieza a saltar por 20 min sin enredarte
+
+#### CONSEJOS Y PRECAUCIONES
+
+- Realizalo con repeticiones para no cansarte
